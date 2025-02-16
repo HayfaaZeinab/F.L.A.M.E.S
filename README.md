@@ -1,3 +1,4 @@
+![Screenshot (46)](https://github.com/user-attachments/assets/d0587582-6322-409b-902b-2f8947ecd82c)
 # F.L.A.M.E.S
 ## FLAMES Love Calculator: Discover Your Relationship Destiny!
 
